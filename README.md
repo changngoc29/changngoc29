@@ -1,3 +1,3 @@
-_**Let our advance worrying become advance thinking and planning.**_
+_**It wasn't raining when Noah built the ark..**_
 
-Winston Churchill
+Howard Ruff
