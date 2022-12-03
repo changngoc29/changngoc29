@@ -1,3 +1,3 @@
-_**Luck is a dividend of sweat. The more you sweat, the luckier you get**_
+_**Core passions and aspirations should be consistent and in sync.**_
 
-Ray Kroc
+Lorii Myers
